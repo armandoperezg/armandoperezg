@@ -21,7 +21,7 @@ I’m an Engineering Physics graduate, currently aspiring to get my Master's/PhD
 - Research projects in quantum information
 
 ### 📫 How to reach me
-- You can send me an email at armandoperezg@example.com
+- You can send me an email at armando.perezg05@outlook.com
 - Connect with me on [LinkedIn](https://www.linkedin.com/in/armandoperezg)
 
 
